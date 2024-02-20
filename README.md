@@ -11,3 +11,7 @@ Can LLMs play TV's hardest quiz show, *Only Connect*?
 > <img width="673" alt="Screenshot 2024-02-20 at 20 26 47" src="https://github.com/penelopeysm/what-comes-fourth/assets/122629585/e3cee075-51b8-4d3f-8df4-58695c8d9b7d">
 
 The correct answer is the Bermuda Triangle 🤦‍♀️
+
+> <img width="721" alt="Screenshot 2024-02-20 at 20 31 21" src="https://github.com/penelopeysm/what-comes-fourth/assets/122629585/89d9390c-3ba7-4523-b0b4-28d6d54fa29f">
+
+I guess I'm writing in to the producers tonight...
